@@ -5,6 +5,8 @@
 - My personality: ENFP-t,⠀ЭЛВФ,⠀7w6
 - Nickname: Miyaota
 - Date birthday: 10.7
+- <img src="https://ibb.co/b4K9M2C" width="100%">
+
 
 - 💍 **My favourite character: Phainon, Fyodor[bsd],Cyrene (KISS KISS THEMMM). And almost all characters Hoyoverse, bsd, Kuro games, crk**
 - Fandoms: Bsd,Hoyo games,Kuro games, Crk,Death note
