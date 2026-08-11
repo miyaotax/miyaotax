@@ -10,7 +10,7 @@
 - Fandoms: Bsd,Hoyo games,Kuro games, Crk,Death note
 - Kinnie: Venti ┊genshin impact┊,Chokola ┊Nekopara┊
 
-<h3 align="left">Stay with me:</h3>
+<h3 align="left">ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤSTAY WITH ME:</h3>
 <p align="left">
 </p>
 
