@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤ<img width="352" height="144" alt="1000032091" src="https://github.com/user-attachments/assets/bf9c7189-e78e-48e1-ab3c-96be1b0f1ff4" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="352" height="144" alt="1000032091" src="https://github.com/user-attachments/assets/bf9c7189-e78e-48e1-ab3c-96be1b0f1ff4" />
 <h1 align="center">᯽Welcome to the my story, reader...᯽</h1>
 <h3 align="center">I'm go on the my life story, and I'm hope i can shine.Ily❤️‍🩹.</h3>
 
