@@ -1,5 +1,6 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="352" height="144" alt="1000032091" src="https://github.com/user-attachments/assets/bf9c7189-e78e-48e1-ab3c-96be1b0f1ff4" />
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[𐌑yiᥒf᧐](https://t.me/MuVichi)
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[𐌑y tg iᥒf᧐](https://t.me/MuVichi)
 <h1 align="center">᯽Welcome to the my story, reader...᯽</h1>
 <h3 align="center">I'm go on the my life story, and I'm hope i can shine.Ily❤️‍🩹.</h3>
 
