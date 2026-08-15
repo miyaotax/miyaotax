@@ -14,7 +14,7 @@
 ㅤㅤㅤ<h3 align="center">Fᥲ᥎᧐riᴛᥱ ᥴɦᥲrᥲᥴᴛᥱrs: I ᥣ᧐᥎ᥱ ⲙᥲᥒy, δᥙᴛ ᥱsρᥱᥴiᥲᥣᥣy Fy᧐ɗ᧐r [B𐍃𑀥], 𑀝yrᥱᥒᥱ, ᥲᥒɗ Pɦᥲiᥒ᧐ᥒ.
 <h3 align="center">Kinnie: Venti ┊genshin impact┊,Chokola ┊Nekopara┊
 
-<h2 align="center">ᴀᴅ ᴀsᴛʀᴀ ᴀʙʏssᴏsǫᴜᴇ!</h2>
+<h1 align="center">ᴀᴅ ᴀsᴛʀᴀ ᴀʙʏssᴏsǫᴜᴇ!</h2>
 <h2 align="center">ʟᴇᴛ's ᴍᴇᴇᴛ ɪɴ ᴀ ɴᴇᴡ sᴛᴏʀʏ.</h2>
 </p>
 
