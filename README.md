@@ -1,23 +1,21 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="352" height="144" alt="1000032091" src="https://github.com/user-attachments/assets/bf9c7189-e78e-48e1-ab3c-96be1b0f1ff4" />
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[𐌑y tg iᥒf᧐](https://t.me/MuVichi)
-<h1 align="center">᯽Welcome to the my story, reader...᯽</h1>
-<h3 align="center">I'm go on the my life story, and I'm hope i can shine.Ily❤️‍🩹.</h3>
+<h1 align="center">᯽ᴀ ɴᴇᴡ sᴛᴏʀʏ, ᴛʜᴇ ʟᴀsᴛ ᴡᴏʀᴅ ᴏғ ᴛʜᴇ ᴏʟᴅ.᯽</h1>
+<h3 align="center">C᧐ᥒgrᥲᴛᥙᥣᥲᴛi᧐ᥒs ᧐ᥒ ᴛɦᥱ sᥒᥱᤁɦᥒᥲyᥲ rᥱᥣᥱᥲsᥱ. Wᥱ'᥎ᥱ δᥱᥱᥒ ᥕᥲiᴛiᥒg f᧐r ᴛɦis f᧐r si᥊ yᥱᥲrs..</h3>
 
-- ㅤㅤㅤㅤㅤ💌 How to reach me **Info: @MuVichi**. I'm in Github,Discord, Telegram,Pony Town✧ ׅ ۫ ⊱
-- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤMy personality: ENFP-t,⠀ЭЛВФ,⠀7w6
-- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤNickname: Miyaota
-- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤDate birthday: 10.7
-- 
- <img src="https://ibb.co/b4K9M2C" width="100%">
+<h4 align="center">Wᥱᥣᥴ᧐ⲙᥱ. Aᥒɗ ᴛɦᥱ ᥕiᥒɗ᧐ᥕs ᧐ρᥱᥒᥱɗ ᥕiᴛɦ ᴛɦᥱ ᥲrᴛ ᴛɦᥲᴛ ᥕiᥒᴛᥱr ρᥲiᥒᴛs, ᥲᥒɗ ᴛɦᥱ ᥴ᧐ᥣɗ ᥲrri᥎ᥱɗ, ᴛᥲκiᥒg ᥲᥕᥲy ᴛɦᥱ ᥕᥲrⲙᴛɦ.
+<h4 align="center">𐌑y ᥒᥲⲙᥱ is 𐌑iyᥲ᧐ᴛᥲ, ᥲᥒɗ ⲙy iᥒf᧐rⲙᥲᴛi᧐ᥒ is δᥱᥣ᧐ᥕ.
+<h4 align="center">Pᥱrs᧐ᥒᥲᥣiᴛy: E𐌽FP, E𑀉VF, 7ᥕ6, ᥴɦ᧐ᥣᥱriᥴ, ᥲⲙδi᥎ᥱrt
+<h3 align="center">Rᥱgᥲrɗiᥒg ᥲᥴqᥙᥲiᥒᴛᥲᥒᥴᥱ: I'ⲙ ᥒ᧐ᴛ ᥣ᧐᧐κiᥒg f᧐r ᥲᥴqᥙᥲiᥒᴛᥲᥒᥴᥱ rigɦᴛ ᥒ᧐ᥕ, s᧐rry. I ᥙsᥙᥲᥣᥣy ⲙᥲκᥱ ᴛɦᥱ firsᴛ ⲙ᧐᥎ᥱ.
+<h5 align="center">ᴅɪsᴄʟᴀɪᴍᴇʀ: ɪ ʜᴀᴠᴇ ᴏʙsᴇssɪᴏɴ, ʜʏᴘᴇʀғᴇᴄᴛs. ɪ'ᴍ ᴠᴇʀʏ ᴇᴍᴏᴛɪᴏɴᴀʟ. ɪ'ᴍ ᴠᴇʀʏ ᴜɴsᴛᴀʙʟᴇ. ɪ'ᴍ ɴᴏᴛ ɢᴏᴏᴅ ᴀᴛ ᴍᴀɪɴᴛᴀɪɴɪɴɢ ʀᴇʟᴀᴛɪᴏɴsʜɪᴘs, ɪ ʜᴀᴠᴇ ʟᴏᴡ ᴇᴍᴏᴛɪᴏɴᴀʟ ɪɴᴛᴇʟʟɪɢᴇɴᴄᴇ, ᴀɴᴅ ɪ ʜᴀᴠᴇ ʟᴏᴡ sᴏᴄɪᴀʟ ɪɴᴛᴇʟʟɪɢᴇɴᴄᴇ.
+<h4 align="center">I ρᥣᥲy: Ᏽᥱᥒsɦiᥒ Iⲙρᥲᥴᴛ, 𐋏𐍃R, 𐋏i3, PᏵR, ZZZ, W𐌵WA, 𑀝᧐᧐κiᥱ Rᥙᥒ.
+<h4 align="center">Fᥲᥒɗ᧐ⲙs ᧐ᥙᴛsiɗᥱ ᧐f gᥲⲙᥱs: Tiᥒy Bᥙᥒᥒy, 𑀥𑀥𑀉𑀝, Z.A.T.𐌏, B𐍃𑀥.
+ㅤㅤㅤ<h3 align="center">Fᥲ᥎᧐riᴛᥱ ᥴɦᥲrᥲᥴᴛᥱrs: I ᥣ᧐᥎ᥱ ⲙᥲᥒy, δᥙᴛ ᥱsρᥱᥴiᥲᥣᥣy Fy᧐ɗ᧐r [B𐍃𑀥], 𑀝yrᥱᥒᥱ, ᥲᥒɗ Pɦᥲiᥒ᧐ᥒ.
+<h3 align="center">Kinnie: Venti ┊genshin impact┊,Chokola ┊Nekopara┊
 
-
-- ㅤㅤㅤㅤ💍 **My favourite character: Phainon, Fyodor[bsd],Cyrene (KISS KISS THEMMM). And almost all characters Hoyoverse, bsd, Kuro games, crk**
-- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤFandoms: Bsd,Hoyo games,Kuro games, Crk,Death note
-- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤKinnie: Venti ┊genshin impact┊,Chokola ┊Nekopara┊
-
-<h3 align="left">ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤSTAY WITH ME</h3>
-<p align="left">
+<h2 align="center">ᴀᴅ ᴀsᴛʀᴀ ᴀʙʏssᴏsǫᴜᴇ!</h2>
+<h2 align="center">ʟᴇᴛ's ᴍᴇᴇᴛ ɪɴ ᴀ ɴᴇᴡ sᴛᴏʀʏ.</h2>
 </p>
 
 
