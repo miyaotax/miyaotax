@@ -1,6 +1,7 @@
 <img width="1520" height="680" alt="1000032376" src="https://github.com/user-attachments/assets/1b1893bb-1c5b-431d-8a44-7f8abdc8838e" />
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-<h3 align="center">[My TG info](https://t.me/MuVichi)
+<h3 align="center"> [My TG info](https://t.me/MuVichi)
+  
 <h1 align="center">᯽ᴀ ɴᴇᴡ sᴛᴏʀʏ, ᴛʜᴇ ʟᴀsᴛ ᴡᴏʀᴅ ᴏғ ᴛʜᴇ ᴏʟᴅ.᯽</h1>
 <h3 align="center">C᧐ᥒgrᥲᴛᥙᥣᥲᴛi᧐ᥒs ᧐ᥒ ᴛɦᥱ sᥒᥱᤁɦᥒᥲyᥲ rᥱᥣᥱᥲsᥱ. Wᥱ'᥎ᥱ δᥱᥱᥒ ᥕᥲiᴛiᥒg f᧐r ᴛɦis f᧐r si᥊ yᥱᥲrs..</h3>
 
