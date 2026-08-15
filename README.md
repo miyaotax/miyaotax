@@ -20,5 +20,6 @@
 <img width="1120" height="480" alt="1000032384" src="https://github.com/user-attachments/assets/65270066-2247-4a28-becf-45c8a169ef2e" />
 <h1 align="center">ᴀᴅ ᴀsᴛʀᴀ ᴀʙʏssᴏsǫᴜᴇ!</h2>
 <h3 align="center">ʟᴇᴛ's ᴍᴇᴇᴛ ɪɴ ᴀ ɴᴇᴡ sᴛᴏʀʏ.</h2>
-</p>
+</p><img width="1420" height="580" alt="1000032401" src="https://github.com/user-attachments/assets/6168e0da-8c47-4994-a0c6-eb2f02c1952a" />
+
 
