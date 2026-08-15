@@ -1,4 +1,4 @@
-<align="center"><img width="1520" height="680" alt="1000032376" src="https://github.com/user-attachments/assets/1b1893bb-1c5b-431d-8a44-7f8abdc8838e" />
+<img width="1520" height="680" alt="1000032376" src="https://github.com/user-attachments/assets/1b1893bb-1c5b-431d-8a44-7f8abdc8838e" />
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[𐌑y tg iᥒf᧐](https://t.me/MuVichi)
 <h1 align="center">᯽ᴀ ɴᴇᴡ sᴛᴏʀʏ, ᴛʜᴇ ʟᴀsᴛ ᴡᴏʀᴅ ᴏғ ᴛʜᴇ ᴏʟᴅ.᯽</h1>
