@@ -1,10 +1,13 @@
 <img width="1520" height="680" alt="1000032376" src="https://github.com/user-attachments/assets/1b1893bb-1c5b-431d-8a44-7f8abdc8838e" />
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-<p align="center">
-  <a href="https://t.me/MuVichi">My TG info</a>
-</p>
+<h1 align="center">᯽ᴀ ɴᴇᴡ sᴛᴏʀʏ, ᴛʜᴇ ʟᴀsᴛ ᴡᴏʀᴅ ᴏғ ᴛʜᴇ ᴏʟᴅ.᯽
 
-<h1 align="center">᯽ᴀ ɴᴇᴡ sᴛᴏʀʏ, ᴛʜᴇ ʟᴀsᴛ ᴡᴏʀᴅ ᴏғ ᴛʜᴇ ᴏʟᴅ.᯽</h1>
+<p align="center">
+  <a href="https://t.me/MuVichi">My TG info</a></h3>
+</h3>
+
+
+
 <h2 align="center">C᧐ᥒgrᥲᴛᥙᥣᥲᴛi᧐ᥒs ᧐ᥒ ᴛɦᥱ sᥒᥱᤁɦᥒᥲyᥲ rᥱᥣᥱᥲsᥱ. Wᥱ'᥎ᥱ δᥱᥱᥒ ᥕᥲiᴛiᥒg f᧐r ᴛɦis f᧐r si᥊ yᥱᥲrs..</h3>
 <img width="1420" height="580" alt="1000032387" src="https://github.com/user-attachments/assets/4b0d7736-4716-4363-86c0-bc50a1a64ee0" />
 <h3 align="center">Wᥱᥣᥴ᧐ⲙᥱ. Aᥒɗ ᴛɦᥱ ᥕiᥒɗ᧐ᥕs ᧐ρᥱᥒᥱɗ ᥕiᴛɦ ᴛɦᥱ ᥲrᴛ ᴛɦᥲᴛ ᥕiᥒᴛᥱr ρᥲiᥒᴛs, ᥲᥒɗ ᴛɦᥱ ᥴ᧐ᥣɗ ᥲrri᥎ᥱɗ, ᴛᥲκiᥒg ᥲᥕᥲy ᴛɦᥱ ᥕᥲrⲙᴛɦ.
