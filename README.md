@@ -11,6 +11,7 @@
 <h4 align="center">𐌑y ᥒᥲⲙᥱ is 𐌑iyᥲ᧐ᴛᥲ, ᥲᥒɗ ⲙy iᥒf᧐rⲙᥲᴛi᧐ᥒ is δᥱᥣ᧐ᥕ.
 <h4 align="center">Pᥱrs᧐ᥒᥲᥣiᴛy: E𐌽FP, E𑀉VF, 7ᥕ6, ᥴɦ᧐ᥣᥱriᥴ, ᥲⲙδi᥎ᥱrt
 <h3 align="center">Rᥱgᥲrɗiᥒg ᥲᥴqᥙᥲiᥒᴛᥲᥒᥴᥱ: I'ⲙ ᥒ᧐ᴛ ᥣ᧐᧐κiᥒg f᧐r ᥲᥴqᥙᥲiᥒᴛᥲᥒᥴᥱ rigɦᴛ ᥒ᧐ᥕ, s᧐rry. I ᥙsᥙᥲᥣᥣy ⲙᥲκᥱ ᴛɦᥱ firsᴛ ⲙ᧐᥎ᥱ.
+<img width="1120" height="480" alt="1000032375" src="https://github.com/user-attachments/assets/f741d5d7-bf1c-46ba-bcca-dde644ff1daa" />
 <h5 align="center">ᴅɪsᴄʟᴀɪᴍᴇʀ: ɪ ʜᴀᴠᴇ ᴏʙsᴇssɪᴏɴ, ʜʏᴘᴇʀfix. ɪ'ᴍ ᴠᴇʀʏ ᴇᴍᴏᴛɪᴏɴᴀʟ. ɪ'ᴍ ᴠᴇʀʏ ᴜɴsᴛᴀʙʟᴇ. ɪ'ᴍ ɴᴏᴛ ɢᴏᴏᴅ ᴀᴛ ᴍᴀɪɴᴛᴀɪɴɪɴɢ ʀᴇʟᴀᴛɪᴏɴsʜɪᴘs, ɪ ʜᴀᴠᴇ ʟᴏᴡ ᴇᴍᴏᴛɪᴏɴᴀʟ ɪɴᴛᴇʟʟɪɢᴇɴᴄᴇ, ᴀɴᴅ ɪ ʜᴀᴠᴇ ʟᴏᴡ sᴏᴄɪᴀʟ ɪɴᴛᴇʟʟɪɢᴇɴᴄᴇ.
 <h4 align="center">I ρᥣᥲy: Ᏽᥱᥒsɦiᥒ Iⲙρᥲᥴᴛ, 𐋏𐍃R, 𐋏i3, PᏵR, ZZZ, W𐌵WA, 𑀝᧐᧐κiᥱ Rᥙᥒ.
 <h4 align="center">Fᥲᥒɗ᧐ⲙs ᧐ᥙᴛsiɗᥱ ᧐f gᥲⲙᥱs: Tiᥒy Bᥙᥒᥒy, 𑀥𑀥𑀉𑀝, Z.A.T.𐌏, B𐍃𑀥.
