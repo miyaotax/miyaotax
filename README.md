@@ -15,7 +15,7 @@
 <h3 align="center">Kinnie: Venti ┊genshin impact┊,Chokola ┊Nekopara┊
 
 <h1 align="center">ᴀᴅ ᴀsᴛʀᴀ ᴀʙʏssᴏsǫᴜᴇ!</h2>
-<h2 align="center">ʟᴇᴛ's ᴍᴇᴇᴛ ɪɴ ᴀ ɴᴇᴡ sᴛᴏʀʏ.</h2>
+<h3 align="center">ʟᴇᴛ's ᴍᴇᴇᴛ ɪɴ ᴀ ɴᴇᴡ sᴛᴏʀʏ.</h2>
 </p>
 
 
