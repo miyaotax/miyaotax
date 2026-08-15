@@ -16,9 +16,11 @@
 <h4 align="center">I ρᥣᥲy: Ᏽᥱᥒsɦiᥒ Iⲙρᥲᥴᴛ, 𐋏𐍃R, 𐋏i3, PᏵR, ZZZ, W𐌵WA, 𑀝᧐᧐κiᥱ Rᥙᥒ.
 <h4 align="center">Fᥲᥒɗ᧐ⲙs ᧐ᥙᴛsiɗᥱ ᧐f gᥲⲙᥱs: Tiᥒy Bᥙᥒᥒy, 𑀥𑀥𑀉𑀝, Z.A.T.𐌏, B𐍃𑀥.
 ㅤㅤㅤ<h3 align="center">Fᥲ᥎᧐riᴛᥱ ᥴɦᥲrᥲᥴᴛᥱrs: I ᥣ᧐᥎ᥱ ⲙᥲᥒy, δᥙᴛ ᥱsρᥱᥴiᥲᥣᥣy Fy᧐ɗ᧐r [B𐍃𑀥], 𑀝yrᥱᥒᥱ, ᥲᥒɗ Pɦᥲiᥒ᧐ᥒ.
+  
+<img width="1320" height="580" alt="1000032398" src="https://github.com/user-attachments/assets/2b620790-3085-4bab-b53b-e4559d2000c1" />
 <h3 align="center">Kinnie: Venti ┊genshin impact┊,Chokola ┊Nekopara┊
-<img width="1120" height="480" alt="1000032384" src="https://github.com/user-attachments/assets/65270066-2247-4a28-becf-45c8a169ef2e" />
 <h1 align="center">ᴀᴅ ᴀsᴛʀᴀ ᴀʙʏssᴏsǫᴜᴇ!</h2>
+<img width="1120" height="480" alt="1000032384" src="https://github.com/user-attachments/assets/65270066-2247-4a28-becf-45c8a169ef2e" />
 <h3 align="center">ʟᴇᴛ's ᴍᴇᴇᴛ ɪɴ ᴀ ɴᴇᴡ sᴛᴏʀʏ.</h2>
 </p>
 
